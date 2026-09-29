@@ -27,3 +27,12 @@ https://gemini.google - for making original free license images for scratch cat 
 https://share.epidemicsound.com/y5elkj
 
 and special thanks to dad to make scratch cat dad sound and other sounds i recorded them with my voice
+
+# Scratch project
+https://scratch.mit.edu/projects/1381022625
+
+# Scratch Account
+https://scratch.mit.edu/users/eazy2018
+
+# Scratch Username
+eazy2018
